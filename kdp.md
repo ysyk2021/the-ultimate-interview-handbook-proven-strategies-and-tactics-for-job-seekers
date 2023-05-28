@@ -37,5 +37,5 @@ MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles
 17. Informational interviews
 18. Follow-up after the interview
 19. Networking for job seekers
-20. Remote work opportunities.
+20. Remote work opportunities
 
