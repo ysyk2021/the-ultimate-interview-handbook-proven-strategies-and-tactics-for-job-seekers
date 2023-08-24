@@ -1,5 +1,3 @@
-Strategies for negotiating benefits and perks
-==========================================================================================
 
 Negotiating salary and benefits is an important part of the job offer process. While many candidates focus on negotiating salary, it's also important to consider benefits and perks. In this chapter, we'll explore strategies for negotiating benefits and perks.
 

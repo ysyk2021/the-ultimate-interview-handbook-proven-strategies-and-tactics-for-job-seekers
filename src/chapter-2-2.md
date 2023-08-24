@@ -1,5 +1,3 @@
-What to Expect During the Interview Process
-===========================================================================================
 
 The interview process can be a daunting experience, but understanding what to expect can help you prepare and approach the process with confidence. In this chapter, we will explore the different stages of the interview process and what to expect during each stage.
 

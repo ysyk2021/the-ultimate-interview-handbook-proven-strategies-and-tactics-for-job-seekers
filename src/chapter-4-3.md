@@ -1,5 +1,3 @@
-Identifying the Company Culture and Values
-===========================================================================================
 
 Researching the company and position is an important part of interview preparation. In this chapter, we'll explore strategies for identifying the company culture and values.
 

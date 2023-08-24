@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews can be a unique and challenging interview format, but with the right preparation and strategies, you can succeed. In this chapter, we'll explore tips for navigating group interviews.
 

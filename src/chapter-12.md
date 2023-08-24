@@ -1,5 +1,3 @@
-Chapter 12: Leveraging Technology in Your Job Search
-====================================================
 
 Technology has revolutionized the job search process, making it easier than ever to find and apply for job opportunities. In this chapter, we'll explore strategies for leveraging technology in your job search.
 

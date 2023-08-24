@@ -1,5 +1,3 @@
-Staying organized and on track during the interview process
-==============================================================================================================
 
 Staying organized and on track during the interview process is an essential part of interview success. In this chapter, we'll explore strategies for staying organized and focused throughout the interview process.
 

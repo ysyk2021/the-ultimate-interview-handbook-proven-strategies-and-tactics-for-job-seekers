@@ -1,5 +1,3 @@
-How to prepare for each stage of the interview process
-======================================================================================================
 
 Understanding the interview process is an important part of interview preparation. In this chapter, we'll explore the different stages of the interview process and how to prepare for each one.
 

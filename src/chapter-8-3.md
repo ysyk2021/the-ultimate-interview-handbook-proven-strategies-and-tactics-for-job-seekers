@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 Job rejections can be disappointing, but it's important to stay positive and professional in your job search. In this chapter, we'll explore strategies for following up after the interview if you don't get the job.
 

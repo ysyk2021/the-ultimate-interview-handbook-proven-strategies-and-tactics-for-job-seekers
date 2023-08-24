@@ -1,5 +1,3 @@
-Sending Thank-You Notes and Follow-Up Emails
-=========================================================================================
 
 Sending thank-you notes and follow-up emails after job interviews is an important part of the job search process. In this chapter, we'll explore strategies for crafting effective thank-you notes and follow-up emails that help you stand out as a strong candidate.
 

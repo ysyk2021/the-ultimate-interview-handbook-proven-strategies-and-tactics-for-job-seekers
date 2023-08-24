@@ -1,5 +1,3 @@
-Using data and metrics to demonstrate value
-=========================================================================================
 
 Using data and metrics to demonstrate your value is an advanced interviewing technique that can set you apart from other candidates. In this chapter, we'll explore how to use data and metrics effectively in job interviews.
 

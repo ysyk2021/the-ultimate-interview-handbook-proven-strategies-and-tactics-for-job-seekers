@@ -1,5 +1,3 @@
-Chapter 11: Advanced Interviewing Techniques
-============================================
 
 Advanced interviewing techniques can help job seekers stand out from the competition and make a lasting impression. In this chapter, we'll explore strategies for advanced interviewing techniques.
 

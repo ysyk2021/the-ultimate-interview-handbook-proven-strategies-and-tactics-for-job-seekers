@@ -1,5 +1,3 @@
-Understanding and managing interview anxiety
-======================================================================================
 
 Job interviews can be stressful, and it's natural to experience some level of anxiety or nervousness. However, if your anxiety is persistent or overwhelming, it can impact your performance and decrease your chances of success. In this chapter, we'll explore some strategies for understanding and managing interview anxiety.
 

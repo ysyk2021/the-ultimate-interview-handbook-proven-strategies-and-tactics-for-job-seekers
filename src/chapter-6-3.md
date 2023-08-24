@@ -1,5 +1,3 @@
-Tips for Turning Negative Aspects into Positives
-====================================================================================================
 
 Answering difficult interview questions can be a challenging part of the job search process. In this chapter, we'll explore strategies for turning negative aspects into positives during interviews.
 

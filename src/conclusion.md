@@ -1,4 +1,3 @@
-# Conclusion
 
 Congratulations! You've made it to the end of The Ultimate Interview Handbook: Proven Strategies and Tactics for Job Seekers. We hope that this book has provided you with valuable insights, strategies, and tactics to help you prepare for and succeed in your job interviews.
 

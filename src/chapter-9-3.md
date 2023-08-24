@@ -1,5 +1,3 @@
-Second-round and final interviews
-========================================================================================
 
 Second-round and final interviews are special interview circumstances that require a different approach than initial interviews. In this chapter, we'll explore some strategies for navigating these situations and increasing your chances of success.
 

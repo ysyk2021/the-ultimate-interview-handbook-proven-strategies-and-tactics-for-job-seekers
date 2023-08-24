@@ -1,4 +1,3 @@
-# Introduction
 
 The job interview is one of the most important steps in the job search process, and yet it is often one of the most stressful and daunting experiences for job seekers. It's the moment when you have the opportunity to showcase your skills, experience, and personality to a potential employer, and ultimately convince them that you are the best candidate for the job.
 

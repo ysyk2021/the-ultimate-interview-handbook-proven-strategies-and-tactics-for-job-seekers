@@ -1,5 +1,3 @@
-Advanced storytelling techniques
-==============================================================================
 
 Storytelling is a powerful tool for conveying your skills and experience in a memorable and engaging way during a job interview. In this chapter, we'll explore some advanced storytelling techniques to help you stand out from other candidates.
 

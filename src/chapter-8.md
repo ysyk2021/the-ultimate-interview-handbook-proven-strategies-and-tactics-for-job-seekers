@@ -1,5 +1,3 @@
-Chapter 8: Following Up After the Interview
-===========================================
 
 Following up after an interview is a crucial step in the job search process. In this chapter, we'll explore strategies for sending thank-you notes and follow-up emails, staying top-of-mind with hiring managers, and what to do if you don't get the job.
 
@@ -39,5 +37,4 @@ Key Takeaways
 * If you don't get the job, stay positive and continue your job search.
 
 By mastering these strategies for following up after an interview, you can increase your chances of receiving a job offer and finding success in your career. Remember to stay professional, remain positive, and focus on your skills and accomplishments. Good luck!
-
 

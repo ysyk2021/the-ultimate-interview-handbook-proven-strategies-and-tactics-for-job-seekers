@@ -1,5 +1,3 @@
-Creating a comprehensive interview preparation plan
-======================================================================================================
 
 A comprehensive interview preparation plan is essential for success in job interviews. In this chapter, we'll explore how to create a detailed plan for interview success.
 

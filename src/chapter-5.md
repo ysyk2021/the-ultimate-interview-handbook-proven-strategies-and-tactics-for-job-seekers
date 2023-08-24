@@ -1,5 +1,3 @@
-Chapter 5: Preparing for Common Interview Questions
-===================================================
 
 Preparing for common interview questions can help you feel more confident and prepared during the interview process. In this chapter, we'll explore strategies for preparing for commonly asked questions about your background and experience, questions about your strengths and weaknesses, and behavioral interview questions.
 

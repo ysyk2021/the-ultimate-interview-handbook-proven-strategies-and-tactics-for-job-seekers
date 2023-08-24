@@ -1,5 +1,3 @@
-Chapter 7: Communicating Effectively During the Interview
-=========================================================
 
 Effective communication is essential during a job interview. It's important to not only express your qualifications and experience, but also build rapport and connect with the interviewer. In this chapter, we'll explore some techniques for effective communication and tips for nonverbal communication.
 

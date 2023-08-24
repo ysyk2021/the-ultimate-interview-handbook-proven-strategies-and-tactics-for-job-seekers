@@ -1,5 +1,3 @@
-Understanding your Unique Value Proposition
-====================================================================================
 
 Understanding your unique value proposition is an important part of crafting a strong personal brand. In this chapter, we'll explore strategies for identifying and communicating your unique value proposition.
 

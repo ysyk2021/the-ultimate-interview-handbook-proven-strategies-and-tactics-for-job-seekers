@@ -1,5 +1,3 @@
-Chapter 14: Overcoming Interview Anxiety
-========================================
 
 Interview anxiety is a common experience for job seekers. However, with the right strategies and techniques, you can manage your anxiety and perform at your best during the interview process. In this chapter, we'll explore how to understand and manage interview anxiety, as well as techniques for staying calm and building confidence.
 

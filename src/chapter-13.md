@@ -1,5 +1,3 @@
-Chapter 13: Creating a Plan for Interview Success
-=================================================
 
 Creating a plan for interview success can help you stay organized, focused, and prepared throughout the interview process. In this chapter, we'll explore strategies for setting goals, creating a comprehensive preparation plan, and staying on track during the interview process.
 

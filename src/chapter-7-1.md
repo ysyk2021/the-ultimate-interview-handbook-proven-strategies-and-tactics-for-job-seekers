@@ -1,5 +1,3 @@
-Techniques for Effective Communication and Listening
-===============================================================================================================
 
 Communicating effectively during a job interview is essential for demonstrating your qualifications and potential as a candidate. In this chapter, we will explore techniques for effective communication and listening during the interview.
 

@@ -1,5 +1,3 @@
-Handling unusual or unexpected interview situations
-=================================================================================================
 
 Handling unusual or unexpected interview situations is an advanced interviewing technique that can help you navigate challenging scenarios with poise and professionalism. In this chapter, we'll explore how to handle unusual or unexpected interview situations.
 

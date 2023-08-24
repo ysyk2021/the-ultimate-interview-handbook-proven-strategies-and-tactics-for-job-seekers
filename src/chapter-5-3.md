@@ -1,5 +1,3 @@
-Behavioral Interview Questions
-===================================================================================
 
 Behavioral interview questions are designed to assess your past behavior and performance to predict how you will behave in the future. These questions require specific examples and stories from your previous professional experiences. In this chapter, we'll explore strategies for preparing for behavioral interview questions.
 

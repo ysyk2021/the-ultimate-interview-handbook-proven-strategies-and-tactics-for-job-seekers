@@ -1,5 +1,3 @@
-Building rapport and connection with the interviewer
-===============================================================================================================
 
 Building rapport and connection with the interviewer is an important part of effective communication during job interviews. In this chapter, we'll explore strategies for building rapport and connecting with the interviewer.
 
@@ -34,5 +32,4 @@ Use humor (when appropriate)
 Using humor can help you build rapport and establish a connection with the interviewer, but it's important to use it judiciously and appropriately. Avoid offensive or inappropriate jokes, and focus on lightening the mood and showing your personality.
 
 By researching the interviewer, listening actively, asking open-ended questions, using positive body language, sharing relevant information, and using humor (when appropriate), you can build rapport and establish a connection with the interviewer during job interviews. Remember to stay focused, enthusiastic, and confident throughout the interview process, and you'll be well on your way to landing your dream job.
-
 

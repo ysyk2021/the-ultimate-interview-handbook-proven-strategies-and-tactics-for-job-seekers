@@ -1,5 +1,3 @@
-Chapter 6: Answering Difficult Interview Questions
-==================================================
 
 During a job interview, you may encounter difficult or unexpected questions that can catch you off guard. However, by preparing in advance and understanding some key techniques, you can confidently navigate these challenges and impress your interviewer.
 

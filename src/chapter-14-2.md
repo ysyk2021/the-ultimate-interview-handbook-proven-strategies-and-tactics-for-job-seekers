@@ -1,5 +1,3 @@
-Techniques for staying calm and focused during the interview
-======================================================================================================
 
 Interview anxiety can make it difficult to perform your best during a job interview. However, there are techniques you can use to help stay calm and focused. In this chapter, we'll explore some strategies for managing interview anxiety and staying present during the interview.
 

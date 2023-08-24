@@ -1,5 +1,3 @@
-Setting goals for your interview preparation
-===============================================================================================
 
 Effective interview preparation requires a strategic approach. In this chapter, we'll explore how to set goals for your interview preparation and create a plan for success.
 
@@ -34,5 +32,4 @@ Evaluate your progress
 As you work through your interview preparation plan, periodically evaluate your progress and adjust your approach as necessary. Take note of areas where you're excelling and areas where you need more work.
 
 By setting specific goals, creating a timeline, and practicing effectively, you can create a plan for interview success. Remember to be thorough in your research, honest in your self-assessment, and dedicated in your preparation efforts.
-
 

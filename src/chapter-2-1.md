@@ -1,5 +1,3 @@
-Different Types of Job Interviews
-=================================================================================
 
 Understanding the different types of job interviews is an important part of interview preparation. In this chapter, we'll explore some of the most common types of job interviews.
 

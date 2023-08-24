@@ -1,5 +1,3 @@
-Navigating applicant tracking systems
-===========================================================================================
 
 Technology has become an integral part of the job search process, and understanding how to navigate applicant tracking systems (ATS) is essential for success. In this chapter, we'll explore what ATS are, how they work, and strategies for optimizing your resume for these systems.
 

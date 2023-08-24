@@ -1,5 +1,3 @@
-Creating a compelling elevator pitch
-=============================================================================
 
 Creating a compelling elevator pitch is an important part of interview preparation. In this chapter, we'll explore strategies for crafting a concise and compelling elevator pitch that showcases your personal brand.
 

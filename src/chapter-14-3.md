@@ -1,5 +1,3 @@
-Strategies for Building Confidence and Self-Assurance
-===============================================================================================
 
 Interview anxiety is a common experience for job seekers, but there are strategies you can use to build confidence and overcome nervousness. In this chapter, we'll explore tips for overcoming interview anxiety and building self-assurance.
 
