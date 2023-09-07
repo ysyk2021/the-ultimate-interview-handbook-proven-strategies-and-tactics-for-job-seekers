@@ -12,3 +12,7 @@ We'll cover everything from the pre-interview preparations to the post-interview
 Whether you're a recent graduate looking for your first job, a seasoned professional seeking a change, or someone who just wants to improve their interviewing skills, this book will give you the tools and confidence you need to land your dream job.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
