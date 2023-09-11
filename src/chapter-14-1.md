@@ -1,5 +1,4 @@
-Chapter 7: Understanding and Managing Interview Anxiety
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for understanding and managing interview anxiety. Job interviews can be stressful, but by understanding the causes of interview anxiety and implementing effective techniques, you can overcome nervousness and perform at your best during the interview process.
 

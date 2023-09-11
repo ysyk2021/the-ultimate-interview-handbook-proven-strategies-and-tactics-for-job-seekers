@@ -1,5 +1,4 @@
-Chapter 4: Understanding Your Unique Value Proposition
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for job seekers to understand and articulate their unique value proposition. Your value proposition is what sets you apart from other candidates and demonstrates the specific value you bring to potential employers. By following these guidelines, you can identify your strengths, skills, and experiences to create a compelling value proposition that resonates with hiring managers.
 

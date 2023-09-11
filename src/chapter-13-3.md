@@ -1,5 +1,4 @@
-Chapter 5: Staying Organized and On Track During the Interview Process
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for staying organized and on track during the interview process. The job search can often be overwhelming with multiple applications, interviews, and deadlines to manage. By implementing the following techniques, you can stay organized, focused, and maximize your chances of success.
 

@@ -1,5 +1,4 @@
-Chapter 9: Handling Unusual or Unexpected Interview Situations
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for successfully navigating unusual or unexpected interview situations. While most interviews follow a traditional format, there may be instances where you encounter unique or challenging circumstances. By being prepared and adaptable, you can confidently handle these situations and make a positive impression on potential employers.
 

@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Staying Calm and Focused During the Interview
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for staying calm and focused during job interviews. The ability to remain composed and focused in high-pressure situations is crucial for presenting yourself confidently and effectively. By implementing these techniques, you can navigate interviews with poise and maximize your chances of success.
 

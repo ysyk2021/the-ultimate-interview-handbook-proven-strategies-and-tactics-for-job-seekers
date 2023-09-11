@@ -1,5 +1,4 @@
-Chapter 6: Identifying the Company Culture and Values
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies and tactics for job seekers to identify the company culture and values of potential employers. Understanding the culture and values of a company is crucial as it allows job seekers to assess whether they align with the organization's mission, work environment, and overall ethos. By utilizing these strategies, candidates can make informed decisions about their career choices and find the best fit for their professional aspirations.
 

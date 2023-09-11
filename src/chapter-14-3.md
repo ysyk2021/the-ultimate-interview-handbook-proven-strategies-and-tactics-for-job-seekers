@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Building Confidence and Self-Assurance
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for building confidence and self-assurance during the job search and interview process. Confidence is key to presenting yourself effectively, showcasing your skills, and making a positive impression on potential employers. By implementing the following strategies, you can develop a strong sense of self-assurance and increase your chances of success.
 

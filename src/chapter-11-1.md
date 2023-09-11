@@ -1,5 +1,4 @@
-Chapter 7: Advanced Storytelling Techniques
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore advanced storytelling techniques that can elevate your interview performance and help you make a lasting impression on potential employers. Effective storytelling allows you to engage the interviewer, showcase your skills and experiences, and connect on a deeper level. By mastering these techniques, you can captivate the interviewer's attention and leave a memorable impact.
 

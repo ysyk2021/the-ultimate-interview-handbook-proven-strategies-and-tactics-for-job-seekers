@@ -1,5 +1,4 @@
-Chapter 3: Different Types of Job Interviews
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various types of job interviews that job seekers may encounter throughout their search. Understanding the different interview formats and approaches can help candidates prepare effectively and adapt to the specific requirements of each interview style. By familiarizing themselves with these types, job seekers can navigate the interview process with confidence and increase their chances of success.
 

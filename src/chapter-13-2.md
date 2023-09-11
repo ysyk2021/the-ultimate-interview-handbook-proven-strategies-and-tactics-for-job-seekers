@@ -1,5 +1,4 @@
-Chapter 3: Creating a Comprehensive Interview Preparation Plan
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will guide you through the process of creating a comprehensive interview preparation plan. Adequate preparation is key to performing well in an interview and increasing your chances of securing the job. By following these strategies and tactics, you can develop a structured and effective approach to interview preparation.
 

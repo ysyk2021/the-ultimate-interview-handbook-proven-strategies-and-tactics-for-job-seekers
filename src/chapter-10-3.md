@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Negotiating Benefits and Perks
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for job seekers to effectively negotiate benefits and perks as part of their overall compensation package. Negotiating for additional benefits and perks can enhance your job satisfaction and overall financial well-being. By following these guidelines, you can enter into negotiations with confidence and maximize the value of your employment agreement.
 

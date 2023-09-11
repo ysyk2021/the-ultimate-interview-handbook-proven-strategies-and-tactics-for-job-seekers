@@ -1,5 +1,4 @@
-Chapter 9: Creating a Compelling Elevator Pitch
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for crafting a compelling elevator pitch that effectively showcases your skills, experience, and value proposition to potential employers. An elevator pitch is a concise and persuasive introduction that can be delivered in the time it takes to ride an elevator. By following these guidelines, job seekers can create a powerful elevator pitch that leaves a lasting impression on recruiters and sets them apart from the competition.
 

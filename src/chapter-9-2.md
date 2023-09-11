@@ -1,5 +1,4 @@
-Chapter 5: Group Interviews
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for navigating group interviews. Group interviews involve multiple candidates being assessed simultaneously by one or more interviewers. By understanding the dynamics of group interviews and implementing effective techniques, you can stand out from the competition and showcase your skills and qualifications.
 

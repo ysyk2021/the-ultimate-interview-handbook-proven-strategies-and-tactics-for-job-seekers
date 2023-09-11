@@ -1,5 +1,4 @@
-Chapter 10: What to Do If You Don't Get the Job
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss strategies and actions to take if you are not selected for a job. While rejection can be disheartening, it is essential to handle it professionally and utilize it as an opportunity for growth and future success.
 

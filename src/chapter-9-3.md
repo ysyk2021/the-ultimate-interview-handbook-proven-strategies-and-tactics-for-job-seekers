@@ -1,5 +1,4 @@
-Chapter 10: Second-Round and Final Interviews
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for navigating second-round and final interviews. These stages of the interview process are crucial as they indicate that you have successfully progressed to the next level of consideration. By understanding the unique dynamics of second-round and final interviews and implementing effective techniques, you can maximize your chances of securing the job offer.
 

@@ -1,5 +1,4 @@
-Chapter 7: Nonverbal Communication Tips
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies and tactics for effectively utilizing nonverbal communication during job interviews. Nonverbal cues play a significant role in conveying confidence, professionalism, and engagement. By understanding and leveraging these tips, job seekers can enhance their nonverbal communication skills and make a positive impact on interviewers.
 

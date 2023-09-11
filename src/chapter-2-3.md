@@ -1,5 +1,4 @@
-Chapter 5: How to Prepare for Each Stage of the Interview Process
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss effective strategies and tactics for job seekers to prepare for each stage of the interview process. A successful interview requires thorough preparation at every step to showcase your skills, experience, and suitability for the role. By following these guidelines, candidates can confidently navigate each stage and increase their chances of securing the job opportunity.
 

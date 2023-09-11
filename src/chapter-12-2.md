@@ -1,5 +1,4 @@
-Chapter 4: Finding Job Opportunities Online
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for job seekers to effectively find job opportunities online. The internet has revolutionized the way job seekers search for employment, providing a vast array of resources and platforms to connect with potential employers. By leveraging these online tools and techniques, you can expand your job search and increase your chances of finding the right opportunity.
 

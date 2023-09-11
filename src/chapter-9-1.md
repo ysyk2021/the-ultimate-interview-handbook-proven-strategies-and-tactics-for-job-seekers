@@ -1,5 +1,4 @@
-Chapter 6: Phone and Video Interviews
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for phone and video interviews. With the rise of remote work and virtual hiring processes, it is essential for job seekers to adapt their interview skills to effectively navigate these types of interviews.
 

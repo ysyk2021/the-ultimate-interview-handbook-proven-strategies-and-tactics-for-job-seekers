@@ -1,5 +1,4 @@
-Chapter 8: Sending Thank-You Notes and Follow-Up Emails
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of sending thank-you notes and follow-up emails after job interviews. These gestures demonstrate your professionalism, gratitude, and continued interest in the position. Let's dive into effective strategies for crafting impactful messages that leave a positive impression on hiring managers.
 

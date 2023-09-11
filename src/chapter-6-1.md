@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Answering Difficult or Unexpected Questions
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies and techniques for job seekers to confidently respond to difficult or unexpected questions during interviews. Job interviews can often include challenging inquiries that require candidates to think on their feet and provide thoughtful, well-crafted responses. By utilizing these techniques, candidates can navigate tricky questions with poise and leave a positive impression on interviewers.
 

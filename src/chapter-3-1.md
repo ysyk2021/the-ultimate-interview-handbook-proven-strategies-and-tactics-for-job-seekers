@@ -1,5 +1,4 @@
-Chapter 6: Developing a Strong Personal Brand
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for job seekers to develop a strong personal brand. Your personal brand is how you present yourself to the professional world and how others perceive you. By following these guidelines, you can create a powerful and authentic personal brand that sets you apart from the competition and attracts desirable career opportunities.
 

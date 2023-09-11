@@ -1,5 +1,4 @@
-Chapter 5: Tips for Turning Negative Aspects into Positives
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies and tactics for job seekers to turn negative aspects into positives during the interview process. Job seekers often encounter questions or situations that require them to address potential weaknesses or challenges. By reframing these negatives into positives, candidates can showcase their resilience, problem-solving abilities, and growth mindset, leaving a lasting impression on employers.
 

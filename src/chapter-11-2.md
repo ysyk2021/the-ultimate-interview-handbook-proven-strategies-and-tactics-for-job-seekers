@@ -1,5 +1,4 @@
-Chapter 6: Using Data and Metrics to Demonstrate Value
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for utilizing data and metrics to demonstrate your value during the interview process. By leveraging quantitative information, you can provide concrete evidence of your achievements, showcase your analytical skills, and impress potential employers with your ability to drive results.
 

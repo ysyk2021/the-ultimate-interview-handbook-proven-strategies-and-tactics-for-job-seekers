@@ -1,5 +1,4 @@
-Chapter 6: Tips for Researching and Determining Fair Compensation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for job seekers to effectively research and determine fair compensation. Negotiating a fair salary is crucial to ensure that you are appropriately compensated for your skills, experience, and the value you bring to an organization. By following these guidelines, you can gather accurate salary information and make informed decisions during salary negotiations.
 

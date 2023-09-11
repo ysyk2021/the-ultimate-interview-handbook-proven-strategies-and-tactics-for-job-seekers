@@ -1,5 +1,4 @@
-Chapter 3: Setting Goals for Your Interview Preparation
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting goals for your interview preparation and provide strategies to help you achieve them. By establishing clear objectives, you can focus your efforts, stay motivated, and enhance your performance during the interview process.
 

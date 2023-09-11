@@ -1,5 +1,4 @@
-Chapter 8: Understanding the Salary Negotiation Process
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the strategies and tactics for understanding the salary negotiation process. Negotiating your salary is a critical step in securing fair compensation and maximizing your value as a job seeker. By comprehending the dynamics of salary negotiations and implementing effective techniques, you can navigate this process with confidence and achieve a favorable outcome.
 

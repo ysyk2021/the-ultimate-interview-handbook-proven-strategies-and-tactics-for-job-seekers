@@ -1,5 +1,4 @@
-Chapter 5: Navigating Applicant Tracking Systems
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for navigating Applicant Tracking Systems (ATS) effectively. Many companies utilize ATS software to manage the hiring process and screen job applications. Understanding how ATS works and optimizing your application for these systems can significantly improve your chances of getting noticed by employers.
 

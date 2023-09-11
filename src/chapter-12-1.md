@@ -1,5 +1,4 @@
-Chapter 8: Using Social Media to Your Advantage
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and tactics for job seekers to effectively use social media to their advantage. Social media platforms offer powerful tools for networking, personal branding, and accessing job opportunities. By following these guidelines, you can leverage social media to boost your professional presence and enhance your job search.
 
